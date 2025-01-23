@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Interview Preparation, Resume and Linkedln Review, Web Development**
 
-- 📫 How to reach me **jsofficialcom@gmail.com**
+- 📫 How to reach me **janvi.singla2018.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
